@@ -1,0 +1,2 @@
+# -Your-new-repository-
+ความจำเยอะมาก
